@@ -13,7 +13,7 @@ Keep the overall look calm and soothing.
 ## Step 3: Use Natural Materials
 Incorporate wood, bamboo, or rattan for a natural feel.
 Choose wooden floors or furniture to add warmth.
-Use cotton or linen for beddings and curtains.
+Use cotton or linen for bedding and curtains.
 ## Step 4: Add Sliding Doors
 Install sliding doors (shoji) to save space and add a traditional touch.
 Choose doors with paper panels or frosted glass for privacy and light.
