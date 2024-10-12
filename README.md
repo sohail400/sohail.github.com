@@ -32,3 +32,4 @@ Keep the space practical with enough storage solutions.
 Use built-in closets or under-bed storage to keep the room tidy.
 Ensure every item has a purpose to maintain a minimalist look.
 >By following these steps, you can create a serene and stylish Korean bedroom that embodies simplicity and elegance.
+Learn more (https://bluebedroomglims.blog/beautifully-aesthetic-bedroom/)
