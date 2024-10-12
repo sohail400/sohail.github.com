@@ -1,2 +1,2 @@
 # Decorwithemy
-# how to make your bedroom look aesthetic
+# How to make your bedroom look aesthetic
