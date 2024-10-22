@@ -1,5 +1,5 @@
 <head>
-  <meta name="google-site-verification" content="SQd3LBOE4AO5bOOx09yOHZHg65Mcm20I2lUiehKf4Oc" />
+    <meta name="google-site-verification" content="SQd3LBOE4AO5bOOx09yOHZHg65Mcm20I2lUiehKf4Oc" />
     <meta charset="UTF-8">
     <meta name="viewport" content="width=device-width, initial-scale=1.0">
 </head>
