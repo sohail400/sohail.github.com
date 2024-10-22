@@ -1,4 +1,5 @@
 # Decorwithemy
+<meta name="google-site-verification" content="SQd3LBOE4AO5bOOx09yOHZHg65Mcm20I2lUiehKf4Oc" />
 ## How to make your bedroom look aesthetic
 ![Aesthetic bedroom.](https://cdn.shopify.com/s/files/1/0566/6586/6400/files/62_0f42946d-6fe1-4ea2-8ab1-4d045f9ea030.png?v=1716802073)
 Creating a Korean-inspired bedroom is all about embracing simplicity, natural materials, and a calming color palette. This design style focuses on minimalism and functionality, resulting in a serene and inviting space. By following a few key steps, you can transform your bedroom into a tranquil retreat that embodies the essence of Korean design.
